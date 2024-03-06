@@ -1,0 +1,1 @@
+# Ijtimoiy-calculator
